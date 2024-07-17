@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mattorosanto
 - 👀 I’m interested in my life and my wife
 - 🌱 I’m currently learning FITHCMUS
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on your road to become a man
 - ⚡ Fun fact: I'm luuso
 
 <!---
